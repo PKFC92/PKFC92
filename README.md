@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Python.....its tough
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: ...Asshole
+- 😄 Pronouns: ...cool dude!
 - ⚡ Fun fact: ...I like music and martial arts 
 
 <!---
